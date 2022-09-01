@@ -1,1 +1,1 @@
-# BSIS_2B_Gil-Andrey_O_Soloria_OKAY-LANG
+# BSIS_2B_gosoloria_paqsi
